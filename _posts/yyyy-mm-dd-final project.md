@@ -9,8 +9,10 @@ Marie’s story isn’t just about one woman’s journey—it’s a window into 
 WHY DOES MARIE’S STORY STILL MATTER?
 
 Marie’s life challenges us to rethink what authority means. She reminds us that influence doesn’t always come from official positions—it can emerge through storytelling, devotion, and sheer determination. Her legacy, preserved by Jacques de Vitry, offers a powerful example of how women could navigate and subtly subvert the systems that tried to hold them back. The life of Marie of Oignies reminds women that even in a world stacked against them, they can find ways to lead, inspire, and make their voices heard.
-image
+
+
 ![bl-marie-d-oignies-recluse](https://github.com/user-attachments/assets/711c927d-9ec4-4cc1-b9c4-c3dad7f6314f)
+
 source: Anastpaul(2021) Image. retrieved from https://anastpaul.com/2021/06/23/saint-of-the-day-23-june-blessed-marie-of-oignies-1167-1213/
 
 MARIE’S STRATEGIES FOR AUTHORITY IN MEDIEVAL MALE-DOMINATED ECCLESIASTICAL CHURCH
