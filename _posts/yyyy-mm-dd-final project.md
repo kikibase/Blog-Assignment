@@ -44,6 +44,9 @@ Her life is a reminder of the resilience and creativity women have shown in over
 REFERENCES.
 
 Anastpaul. (2021) Image. Retrieved from https://anastpaul.com/2021/06/23/saint-of-the-day-23-june-blessed-marie-of-oignies-1167-1213/
+
 Berger, Teresa. "Christian Worship and Gender Practices." In Oxford Research Encyclopedia of Religion. 2015. https://doi.org/10.1093/acrefore/9780199340378.013.6
+
 Bynum, Caroline Walker. "Holy Feast and Holy Fast: The Religious Significance of Food to Medieval Women." EBSCO Publishing: eBook Academic Collection (1987) 189-218.
+
 Vitry, Jacques de. "The Life of Marie D’oignies, by Jacques De Vitry; Translated with Introductory Notes by Margot H. King." Ed. By Elizabeth Spearing. (1989) 87-106.
