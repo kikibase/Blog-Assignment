@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "WOMEN AND AUTHORITY IN MEDIEVAL CHRISTIANITY-A CASE STUDY OF MARIE OF OIGNIES”
+title:"WOMEN AND AUTHORITY IN MEDIEVAL CHRISTIANITY-A CASE STUDY OF MARIE OF OIGNIES”
 ---
 
 The medieval world was a place of contradictions, especially for women navigating the spiritual and patriarchal structures of Christianity. Take Marie of Oignies (1177–1213), a Beguine and mystic who found ways to carve out spiritual authority within a church system that kept women far from formal power.
