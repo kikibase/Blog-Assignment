@@ -1,7 +1,7 @@
-
+---
 layout: post
-title:"WOMEN AND AUTHORITY IN MEDIEVAL CHRISTIANITY-A CASE STUDY OF MARIE OF OIGNIES”
-
+title: 'WOMEN AND AUTHORITY IN MEDIEVAL CHRISTIANITY: A CASE STUDY OF MARIE OF OIGNIES'
+---
 
 The medieval world was a place of contradictions, especially for women navigating the spiritual and patriarchal structures of Christianity. Take Marie of Oignies (1177–1213), a Beguine and mystic who found ways to carve out spiritual authority within a church system that kept women far from formal power.
 But how did she do it? This blog dives into the fascinating life of Marie through the lens of The Life of Marie d’Oignies, written by Jacques de Vitry(1989). The blog also draws on insights from Teresa Berger’s Christian Worship and Gender Practices(2016) and Caroline Walker Bynum’s Holy Feast and Holy Fast(1987) to unpack what Marie’s story reveals about gender, power, and spirituality in the Medieval church.
